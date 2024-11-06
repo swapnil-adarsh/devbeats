@@ -1,4 +1,4 @@
-## Rahul Kumar
+## swapnil adarsh is the name
 
 ## Clone the repository, start brainstorming your ideas! 💡
 
